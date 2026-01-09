@@ -81,8 +81,8 @@ My work is strongly aligned with **crypto platforms, trading-related products, a
 
 ## 🔗 Connect
 - GitHub: https://github.com/Lilysmart14  
-- https://x.com/VictorS95547306  
-- smartvictor384@gmail.com 
+- X: https://x.com/VictorS95547306  
+- Gmail: smartvictor384@gmail.com 
 
 ---
 
